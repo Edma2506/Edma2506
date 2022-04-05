@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Edmanuel Lorenzo,
+👋 Hi, I’m Edmanuel Lorenzo,
 I live in Houston and I am working on getting into the tech industry. For the past couple of years I have been working on a few personal projects.
 In 2018, I started an Ice Cream shop with an EscapeRoom. After a couple of months into it, I sold my ownership. Then I went into the puzzle industry and
 started creating puzzles(in spanish) in a box, where people were able to play the game and solve puzzles in the comfort of house (During the Pandemic). I still spend 
